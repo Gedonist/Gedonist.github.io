@@ -1,1 +1,0 @@
-# Gedonist.github.io
